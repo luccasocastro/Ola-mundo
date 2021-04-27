@@ -5,4 +5,4 @@
  
  Alterei essa linha remotamente!! ;)
 
- A Raqeu é muito linda, e é minha inspiração, queria ser inteligente que nem ela.
+ A Raqeu é muito linda e GOSTOSA, e é minha inspiração, queria ser inteligente que nem ela.
